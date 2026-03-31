@@ -1,3 +1,5 @@
+Due to MicroSlop, see all my repos on [Codeberg](https://codeberg.org/diam0ndkiller). :)
+
 - 🩵 #choosekind #noracism
 - 🏳️‍🌈 #loveislove #youareloved
 - 🇺🇦 #standwithukraine
